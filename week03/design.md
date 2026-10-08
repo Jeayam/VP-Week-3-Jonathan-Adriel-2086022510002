@@ -3,7 +3,8 @@
 ## After doing some readings on these websites : 
 
 ### "Purple is linked to many meanings, such as wisdom, creativity, royalty, power, ambition, and luxury. It also symbolizes magic, extravagance, peace, pride, independence, and wealth. In color psychology, purple is believed to significantly influence moods and behaviors."
-- Kurt S, Osueke KK. The effects of color on the moods of college students. SAGE Open. 2014;4(1):215824401452542. doi:10.1177/2158244014525423"
+Kurt S, Osueke KK. The effects of color on the moods of college students. SAGE Open. 2014;4(1):215824401452542. doi:10.1177/2158244014525423"
+
 Source : https://www.verywellmind.com/the-color-psychology-of-purple-2795820
 
 
